@@ -1,4 +1,4 @@
-## Hi there 👋 Sbn best r6 player se stie
+## Hi there 👋 Sbn worst r6 player se stie
 
 <!--
 
